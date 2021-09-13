@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @SamITRecruitment
 - 👀 I’m interested in Recruiting top Talents in the Market
 - 🌱 I’m currently Testing ...
-- 💞️ I’m looking for the best candidates in the market
+- 💞️ I’m looking for the best calibers in the market
 - 📫 How to reach me .... Sam.essam@aol.com
 
 <!---
